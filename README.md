@@ -1,1 +1,1 @@
-# Infotrix
+# Infotrixs
